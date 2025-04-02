@@ -1,4 +1,4 @@
-- 👋 Hiya,
+                                - 👋 Hiya,
 - 😀I’m @BreahzelbubKunda 39 👩
 - 🗺 Where in the world am I? Melbourne 🇦🇺
 - 👀 I’m interested in way to many things to list 💻 is an obvious one haha 🎮 as well
